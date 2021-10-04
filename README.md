@@ -6,4 +6,6 @@ Olá!  Bem vindo ao meu livro de receitas 🍴
 
 - Almondegas de queijo
 
-- Ovo Frito
+- Ovo frito
+- Tainha  recheada
+- Filé mignon com molho champion
